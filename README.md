@@ -7,3 +7,4 @@ De Nederlandse taal is moeilijk, oprichter Kevin de Vette kwam er ook niet uit e
 
 ![Capa](https://github.com/AdilYunus/De_Of_Het/blob/main/img/1.png?raw=true)
 ![Capa](https://github.com/AdilYunus/De_Of_Het/blob/main/img/2.png?raw=true)
+![Capa](https://github.com/AdilYunus/De_Of_Het/blob/main/img/3.png?raw=true=
